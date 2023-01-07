@@ -1,1 +1,1 @@
-# Importance-of-Photography
+# Importance-of-Photography-in-wordpress
